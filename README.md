@@ -1,2 +1,0 @@
-# Novo-projeto
-Atividade Avaliativa 
